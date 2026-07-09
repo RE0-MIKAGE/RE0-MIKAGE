@@ -6,7 +6,8 @@
  <p float="center">
  https://vt.tiktok.com/ZSCnGsCrh/
 <p float="left">
- <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260707000309.png" width="1000" />  
+    
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260707000309.png" width="1000" />  
 
 
  $\color{D5C5E8}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$
@@ -18,8 +19,8 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥�
 
 $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀⠀🆂/🅺/🆇/🅅/🄳/🄿/🅁/🅁ㅤ✿⃝🫧}}$
 
-$\color{D5C5E8}\normalsize{\texttt{ (ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀use'⠀socials⠀'⠀4⠀more｡}}$
-Image
+$\color{D5C5E8}\normalsize{\texttt{ (ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀use'⠀socials⠀'⠀4⠀more｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
+
 
 
   <code style="lavender : D5C5E8">wip gon last 80 days or sum</code>
