@@ -11,7 +11,7 @@
 
 
  $\color{D5C5E8}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$
-⠀ Image⠀ $\color{D5C5E8}\normalsize{\texttt{𝑅eo}}$
+⠀ <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0402.gif" width="20" />  ⠀ $\color{D5C5E8}\normalsize{\texttt{𝑅eo}}$
 
 $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀𝘾𝙝𝙖𝙢𝙚𝙡𝙚𝙤𝙣𝙖𝙞𝙧𝙚⠀. 𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟ ⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$
 
