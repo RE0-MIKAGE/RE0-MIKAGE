@@ -7,7 +7,20 @@
  https://vt.tiktok.com/ZSCnGsCrh/
 <p float="left">
  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260707000309.png" width="1000" />  
- https://rentry.co/kagereos
- 
+
+
+ $\color{D5C5E8}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$
+⠀ Image⠀ $\color{D5C5E8}\normalsize{\texttt{𝑅eo}}$
+
+$\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀𝘾𝙝𝙖𝙢𝙚𝙡𝙚𝙤𝙣𝙖𝙞𝙧𝙚⠀. 𝑎͟𝑛͟𝑔͟𝑒͟𝑙͟ ⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$
+
+$\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥⠀♡ㅤ˒}}$
+
+$\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀⠀𝟢͟6ㅤ˙⠀⠀⠀🆂/🅺/🆇/🅅/🄳/🄿/🅁/🅁ㅤ✿⃝🫧}}$
+
+$\color{D5C5E8}\normalsize{\texttt{ (ᴗ ᴗ ｡⠀ꜛ⠀⠀⠀use'⠀socials⠀'⠀4⠀more｡}}$
+Image
+
+
   <code style="lavender : D5C5E8">wip gon last 80 days or sum</code>
 
