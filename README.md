@@ -10,5 +10,5 @@
  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260707000309.png" width="1000" />  
  https://rentry.co/kagereos
  
-  wip gon last 80 days or sum
+  <code style="lavender : D5C5E8">wip gon last 80 days or sum</code>
 
