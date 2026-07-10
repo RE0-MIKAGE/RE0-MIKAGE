@@ -22,13 +22,12 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥�
 $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒Lovemail ⸝⸝⠀⠀𝟢͟𝟖ㅤ˙⠀🆂/🅺/🆇/🅅/🄳/🄿/🅁/🅁ㅤ✿⃝}}$
 
 $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : Dared4devilss｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
-
-  <code style="lavender : D5C5E8">wip gon last 80 days or sum</code>
-
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="left">
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002258.png" width="30%" />
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002346.png" width="30%" />
 </p>
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="center">
 $\color{D5C5E8}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
       
