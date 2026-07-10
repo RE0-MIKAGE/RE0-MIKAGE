@@ -29,5 +29,15 @@ $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + 
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002258.png" width="30%" />
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002346.png" width="30%" />
 </p>
+  <p float="center">
+$\color{D5C5E8}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
+      
+$\color{D5C5E8}\normalsize{\texttt{Reo..life was just a pain for me...and you gave me light.}}$
+
+$\color{D5C5E8}\normalsize{\texttt{Everything that's happened since I met you..}}$
+
+$\color{D5C5E8}\normalsize{\texttt{has been the treasure of my life.}}$
+
+$\color{D5C5E8}\normalsize{\texttt{The Reo to her Nagi. 03/13/25.}}$
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled240_20260711000832.png" width="2000" />  
 
