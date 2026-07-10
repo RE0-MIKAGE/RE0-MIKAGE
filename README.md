@@ -8,10 +8,6 @@
  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260707000309.png" width="1000" />  
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
-
- <div align="left">
-     <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002258.png" width="300" />    
-
  <div align="center">
      
  $\color{D5C5E8}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$
@@ -28,8 +24,10 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒Lovemail ⸝⸝⠀⠀𝟢͟
 $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : Dared4devilss｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
 
   <code style="lavender : D5C5E8">wip gon last 80 days or sum</code>
-  <div align="right">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002346.png" width="300" />
 
+  <p float="left">
+  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002258.png" width="30%" />
+  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002346.png" width="30%" />
+</p>
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled240_20260711000832.png" width="2000" />  
 
