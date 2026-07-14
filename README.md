@@ -24,8 +24,10 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒Lovemail ⸝⸝⠀⠀𝟢͟
 $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : Dared4devilss｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="left">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002258.png" width="30%" />
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260711002346.png" width="30%" />
+  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183129.png" width="20%" />
+  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183450.png" width="20%" />
+        <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183343.png" width="20%" />
+  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714175652.png" width="20%" />
 </p>
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="center">
