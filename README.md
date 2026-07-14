@@ -29,6 +29,8 @@ $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + 
         <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183343.png" width="20%" />
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714175652.png" width="20%" />
 </p>
+<div align="center">
+    https://reochanslovemail.straw.page
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="center">
 $\color{D5C5E8}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
