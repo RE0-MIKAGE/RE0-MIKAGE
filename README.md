@@ -27,7 +27,6 @@ $\color{D5C5E8}\normalsize{\texttt{ARIGATO FOR THIS EDIT SO MUCHHCHCH @KYUHEART-
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="left">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183129.png" width="20%" />
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183450.png" width="20%" />
         <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714183343.png" width="20%" />
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled241_20260714175652.png" width="20%" />
@@ -43,7 +42,5 @@ $\color{D5C5E8}\normalsize{\texttt{Reo..life was just a pain for me...and you ga
 $\color{D5C5E8}\normalsize{\texttt{Everything that's happened since I met you..}}$
 
 $\color{D5C5E8}\normalsize{\texttt{has been the treasure of my life.}}$
-
-$\color{D5C5E8}\normalsize{\texttt{The Reo to her Nagi. 03/13/25.}}$
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled240_20260711000832.png" width="2000" />  
 
