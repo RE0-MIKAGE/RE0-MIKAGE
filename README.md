@@ -22,8 +22,6 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥�
 $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀47/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 09. ㅤ✿⃝}}$
 
 $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : Dared4devilss｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
-https://media.discordapp.net/attachments/1526611525467639878/1529166047142215781/21.mov?ex=6a60f25c&is=6a5fa0dc&hm=e674fe9b7385a906381351586719ae6c57e60cb736a429fb35466cb5375796e5&
-$\color{D5C5E8}\normalsize{\texttt{ARIGATO FOR THIS EDIT SO MUCHHCHCH @KYUHEART-CHAN}}$
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="left">
