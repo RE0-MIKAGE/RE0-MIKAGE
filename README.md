@@ -21,7 +21,7 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥�
 
 $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀47/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 09. ㅤ✿⃝}}$
 
-$\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : Dared4devilss｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
+$\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : sunnyreos｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="left">
