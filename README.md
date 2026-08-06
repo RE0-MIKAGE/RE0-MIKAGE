@@ -7,6 +7,7 @@
  <p float="center">
  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260707000309.png" width="1000" />  
+     $\color{D5C5E8}\normalsize{\texttt{@pt-walk-of-fame @pt-fashion @pt-players @pt-hall-of-media @pt-medals and @title-town’s reo mikage <3}}$
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
  <div align="center">
      
