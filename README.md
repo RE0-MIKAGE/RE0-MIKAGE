@@ -27,11 +27,27 @@ $\color{D5C5E8}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 $\color{D5C5E8}\normalsize{\texttt{｡⠀ꜛ⠀𓏵⠀⠀ ׅ 𝕯isC + ιnsta + тiktok : sunnyreos｡}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
-  <p float="left">
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled238_20260802152348.png" width="100%" />
+<table border="0">
+<tr>
+<td align="center" valign="middle" width="60%">
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled312_20260808044711.png" width="100%" alt="Banner Artwork">
+</td>
+<td align="center" valign="middle" width="40%">
+<br><br>
+<table border="1" cellpadding="8" cellspacing="0" width="80%">
+<tr><td align="center">I want to be the world’s best on my own.</td></tr>
+</table>
+<br>
+<p>
+<img src="https://file.garden/aeU00LX7giXAZivJ/polish_save.png" height="50" align="center" alt="icon">
 </p>
-<div align="center">
-    https://reochanslovemail.straw.page
+<br>
+<table border="1" cellpadding="8" cellspacing="0" width="80%">
+<tr><td align="center">Reo Mikage Fictionkin. 03-13-25</td></tr>
+</table>
+</td>
+</tr>
+</table>
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
   <p float="center">
 $\color{D5C5E8}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
