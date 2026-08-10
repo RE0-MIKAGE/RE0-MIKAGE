@@ -34,7 +34,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </table>
 <br>
 <p>
-<img src="https://file.garden/aeU00LX7giXAZivJ/polish_save.png" height="50" align="center" alt="icon">
+<img src="https://file.garden/aeU00LX7giXAZivJ/polish_save.png" height="90" align="center" alt="icon">
 </p>
 <br>
 <table border="1" cellpadding="8" cellspacing="0" width="80%">
