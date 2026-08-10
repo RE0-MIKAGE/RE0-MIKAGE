@@ -25,7 +25,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled312_20260810225917.png" width="100%" alt="Banner Artwork">
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_2424.jpeg" width="100%" alt="Banner Artwork">
 </td>
 <td align="center" valign="middle" width="40%">
 <br><br>
