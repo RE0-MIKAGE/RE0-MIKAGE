@@ -29,9 +29,6 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </td>
 <td align="center" valign="middle" width="40%">
 <br><br>
-    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_2157.png" height="50" align="center" alt="icon">
-
-    
 <table border="1" cellpadding="8" cellspacing="0" width="80%">
 <tr><td align="center">I want to be the world’s best on my own.</td></tr>
 </table>
