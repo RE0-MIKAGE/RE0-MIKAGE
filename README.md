@@ -10,16 +10,15 @@
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" />  
  <div align="center">
      
- $\color{6C5F75}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$
-⠀ <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0402.gif" width="20" />  ⠀ $\color{D5C5E8}\normalsize{\texttt{𝑅eo}}$
+ $\color{6C5F75}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁 . Reo}}$
 
 $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀⠀𝘾𝙝𝙖𝙢𝙚𝙡𝙚𝙤𝙣𝙖𝙞𝙧𝙚⠀. 16 ⠀⠀ ㅤ♰ ㅤ˙ㅤ }}$
 
 $\color{6C5F75}\normalsize{\texttt{⠀⠀𓈈 ﹒ 𖣠 . ᴄ+ʜ ƒяєєℓу + ∂σ ησт: 🄲𝕠𝕧𝕖𝕣/ 🅒opy ⠀ ㅤ♰ ㅤ˙ㅤ }}$
 
-$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥⠀♡ㅤ˒}}$
+$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 ⠀♡ㅤ˒}}$
 
-$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀59/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 12. ㅤ✿⃝}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
+$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀59/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 12. ㅤ✿⃝}}$
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
 <table border="0">
