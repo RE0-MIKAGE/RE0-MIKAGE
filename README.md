@@ -7,7 +7,7 @@
   
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20260810223940.png" width="1000" />  
      
-<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" />  
  <div align="center">
      
  $\color{6C5F75}\normalsize{\texttt{✿.⠀⠀⠀🅈🄾🅄🅁⠀}}$
@@ -21,7 +21,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 🍥�
 
 $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀59/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 12. ㅤ✿⃝}}$<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0401.gif" width="20" />  
 
-<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
 <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
@@ -46,7 +46,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </td>
 </tr>
 </table>
-<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_0433.png" width="2000" />  
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
   <p float="center">
 $\color{6C5F75}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
       
