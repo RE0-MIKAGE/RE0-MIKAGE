@@ -52,6 +52,6 @@ $\color{6C5F75}\normalsize{\texttt{Everything that's happened since I met you..}
 
 $\color{6C5F75}\normalsize{\texttt{has been the treasure of my life.}}$
 
-$\color{6C5F75}\normalsize{\texttt{Forever her Reo.}}$
+$\color{6C5F75}\normalsize{\texttt{Forever Reo.}}$
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled320_20260810233111.png" width="2000" />  
 
