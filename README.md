@@ -1,5 +1,5 @@
 <div align="center">
-    <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled320_20260810233107.png" width="2000" />  
+    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_2961.png" width="2000" />  
  <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=FFFFFf&labelColor=6C5F75">                                  
 <div align="center">  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=2000&color=6C5F75&width=435&lines=You%E2%80%99re+not+mine+anymore%2C+are+you%3F" alt="Typing SVG" /></a>
@@ -53,5 +53,5 @@ $\color{6C5F75}\normalsize{\texttt{Everything that's happened since I met you..}
 $\color{6C5F75}\normalsize{\texttt{has been the treasure of my life.}}$
 
 $\color{6C5F75}\normalsize{\texttt{Forever Reo.}}$
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled320_20260810233111.png" width="2000" />  
+  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_2965.png" width="2000" />  
 
