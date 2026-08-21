@@ -2,7 +2,7 @@
     <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819082953.png" width="2000" />  
  <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=FFFFFf&labelColor=6C5F75">                                  
 <div align="center">  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=2000&color=6C5F75&width=435&lines=You%E2%80%99re+not+mine+anymore%2C+are+you%3F" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=2000&color=6C5F75&width=435&lines=Be-be-be-be-better+luck+next+time." alt="Typing SVG" /></a>
  <p float="center">
   
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20260810223940.png" width="1000" />  
