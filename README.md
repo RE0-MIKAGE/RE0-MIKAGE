@@ -36,7 +36,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </p>
 <br>
 <table border="1" cellpadding="8" cellspacing="0" width="80%">
-<tr><td align="center">Reo Mikage fictionkin + oshikatsu for 1+ years.</td></tr>
+<tr><td align="center">Reo Mikage fictionkin + oshikatsu</td></tr>
 </table>
 </td>
 </tr>
