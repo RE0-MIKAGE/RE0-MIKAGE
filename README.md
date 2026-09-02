@@ -17,7 +17,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀𓈈 ﹒ 𖣠 . ᴄ+ʜ ƒяєєℓу + 
 
 $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 ⠀♡ㅤ˒}}$
 
-$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀71/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 12. ㅤ✿⃝}}$
+$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀73/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 13. ㅤ✿⃝}}$
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
 <table border="0">
