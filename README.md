@@ -3,6 +3,7 @@
     
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=979797&width=750&lines=all+souls+are+scared+of+ghosts+and+ghouls...)](https://git.io/typing-svg)
 
+  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=979797&width=750&lines=Yet+yours+dares+to+even+get+close+to+me.)
 <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
@@ -22,7 +23,4 @@
 </tr>
 </table>
  wip btw happy weeny month
-
-  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=979797&width=750&lines=Yet+yours+dares+to+even+get+close+to+me.)
-
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled409_20261024024445.png" width="800" /> 
