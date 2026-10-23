@@ -6,7 +6,7 @@
 <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled409_20261024000755.png" width="100%" alt="Banner Artwork">
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled410_20261024024025.png" width="100%" alt="Banner Artwork">
 </td>
 <td align="center" valign="middle" width="90%">
 <br><br>
