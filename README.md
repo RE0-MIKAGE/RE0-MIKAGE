@@ -4,7 +4,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=979797&width=750&lines=all+souls+are+scared+of+ghosts+and+ghouls...)](https://git.io/typing-svg)
 
 
- 
+ wip btw happy weeny month
 
   ![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=979797&width=750&lines=Yet+yours+dares+to+even+get+close+to+mine.)
 
