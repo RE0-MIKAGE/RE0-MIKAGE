@@ -11,10 +11,7 @@
 <td align="center" valign="middle" width="90%">
 <br><br>
 <table border="1" cellpadding="8" cellspacing="0" width="80%">
-<tr><td align="center">
-</table>
-<br>
-<p>
+<tr>
  <img src="https://file.garden/aeU00LX7giXAZivJ/polish_save.png" height="200" align="center" alt="icon">
 <img src="https://file.garden/aeU00LX7giXAZivJ/polish_save.png" height="200" align="center" alt="icon">
 <img src="https://file.garden/aeU00LX7giXAZivJ/polish_save.png" height="200" align="center" alt="icon">
