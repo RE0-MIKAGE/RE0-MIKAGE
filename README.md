@@ -26,8 +26,6 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀𓈈 ﹒ 𖣠 . ᴄ+ʜ ƒяєєℓу + 
 $\color{A754E0}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 ⠀♡ㅤ˒}}$
 
 $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀91/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 20. ㅤ✿⃝}}$
-
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
 <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
@@ -49,7 +47,6 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </td>
 </tr>
 </table>
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
   <p float="center">
     
 $\color{A754E0}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
