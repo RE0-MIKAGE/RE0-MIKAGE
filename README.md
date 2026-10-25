@@ -60,3 +60,6 @@ $\color{A754E0}\normalsize{\texttt{Everything that's happened since I met you..}
 $\color{A754E0}\normalsize{\texttt{has been the treasure of my life.}}$
 
 $\color{A754E0}\normalsize{\texttt{Forever Reo.}}$
+
+<img src="https://file.garden/aeU00LX7giXAZivJ/A372BDB4-45C2-442F-A12F-D4CAA1B26CD5.gif" width="500" alt="Alt Text">
+
