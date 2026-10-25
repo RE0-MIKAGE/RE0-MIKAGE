@@ -3,7 +3,12 @@
     <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819082953.png" width="2000" />  
  <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=FFFFFf&labelColor=6C5F75">                                  
 <div align="center">  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3400&pause=2000&color=6C5F75&width=435&lines=B-b-b-b-better+luck+next+time." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
+                          <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819083056.png" width="2000" />  
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=6C5F75&width=750&lines=I+though+we+were+chasing+the+same+dream.)](https://git.io/typing-svg)
+     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=6C5F75&width=750&lines=But+I+was+the+only+one+being+left+behind.)](https://git.io/typing-svg)
+     
  <p float="center">
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20260810223940.png" width="1000" />  
      
@@ -19,7 +24,7 @@ $\color{6C5F75}\normalsize{\texttt{⠀⠀𓈈 ﹒ 𖣠 . ᴄ+ʜ ƒяєєℓу + 
 
 $\color{6C5F75}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 ⠀♡ㅤ˒}}$
 
-$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀80/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 20. ㅤ✿⃝}}$
+$\color{6C5F75}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀91/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 20. ㅤ✿⃝}}$
 
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled318_20260810230232.png" width="2000" />  
 <table border="0">
