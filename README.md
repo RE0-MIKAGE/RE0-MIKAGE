@@ -10,10 +10,10 @@
      [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=But+I+was+the+only+one+being+left+behind.)](https://git.io/typing-svg)
      
  <p float="center">
-   <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6391.png" />
+   <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6398.png" />
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20261025223011.png" width="1000" />  
      
-<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6392.png" />  
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6399.png" />  
  <div align="center">
 
    
