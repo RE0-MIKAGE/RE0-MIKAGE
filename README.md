@@ -5,8 +5,8 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
                           <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819083056.png" width="2000" />  
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=I+though+we+were+chasing+the+same+dream.)](https://git.io/typing-svg)
-     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=But+I+was+the+only+one+being+left+behind.)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=I+swear+on+my+life,+always+try)](https://git.io/typing-svg)
+     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=But+in+my+eyes,+I+can+fly.)](https://git.io/typing-svg)
      
  <p float="center">
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6398.png" />
