@@ -37,11 +37,11 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </table>
 <br>
 <p>
-<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6510.gif" height="90" align="center" alt="icon">
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6510.gif" height="70" align="center" alt="icon">
 </p>
 <br>
 <table border="1" cellpadding="8" cellspacing="0" width="80%">
-<tr><td align="center">Reo Mikage fictionkin + oshikatsu</td></tr>
+<tr><td align="center">Better luck next time.</td></tr>
 </table>
 </td>
 </tr>
