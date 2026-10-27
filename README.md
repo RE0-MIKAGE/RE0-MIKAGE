@@ -1,6 +1,5 @@
+
 <div align="center">
-  <div align="center">
-    <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819082953.png" width="2000" />  
  <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=000000&labelColor=A754E0">                                  
 <div align="center">  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
