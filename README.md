@@ -24,7 +24,7 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀𓈈 ﹒ 𖣠 . ᴄ+ʜ ƒяєєℓу + 
 
 $\color{A754E0}\normalsize{\texttt{⠀⠀⠀⠀˙ㅤㅤ90'𝓼⠀⠀01/09 ⠀♡ㅤ˒}}$
 
-$\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀91/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 20. ㅤ✿⃝}}$
+$\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖𝙜𝙚 ꜱᴋɪɴ ᴄᴏᴜɴᴛᴇʀ: ⸝⸝⠀99/150 ˙|⠀ɢɪꜰᴛᴇᴅꜱ: 21. ㅤ✿⃝}}$
 <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
