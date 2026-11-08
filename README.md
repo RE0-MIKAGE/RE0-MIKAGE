@@ -56,6 +56,8 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
    
 other than that u can willingly interact or be friends with me
 
+oh and iwvec reo doubles or people who sexualize/over-romanticize reo + ngro PLEASE im not gonna date you because you kin nagi and i kin reo i hate that ts happened 
+
 　　<br>
   </details>
   </td>
