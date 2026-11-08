@@ -52,7 +52,7 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
   <details>
 <summary>$\color{#A754E0}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
-   $\color{A754E0}\normalsize{\texttt{my only dni is the basic dni + ex friends im unwilling to be with}}
+   my only dni is the basic dni + ex friends im unwilling to be with
 　　<br>
   </details>
   </td>
