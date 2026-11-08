@@ -52,15 +52,8 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
   <details>
 <summary>$\color{#A754E0}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
-$${\color{#A754E0} my only dni is the basic dni + ex friends and narcissists.}$$
+   $${\color{#A754E0} my only dni is the basic dni + ex friends and narcissists.}$$
 　　<br>
-$${\color{#A754E0} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
-    <br>
-$${\color{#A754E0} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
-　　<br>
-$${\color{#A754E0} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
-    <br>
-
   </details>
   </td>
   </tr>
