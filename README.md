@@ -50,9 +50,12 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
     <tr>
 <td>
   <details>
-<summary>$\color{#A754E0}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#A754E0}{\textsf{BYIㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
    my only dni is the basic dni + ex friends im unwilling to be with
+   
+other than that u can willingly interact or be friends with me
+
 　　<br>
   </details>
   </td>
