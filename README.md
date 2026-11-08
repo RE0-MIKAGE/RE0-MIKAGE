@@ -47,7 +47,23 @@ $\color{A754E0}\normalsize{\texttt{⠀⠀⠀﹒⌗﹒𝓡ₑₒ 🅼𝙞𝙠𝙖
 </tr>
 </table>
   <p float="center">
-    
+    <tr>
+<td>
+  <details>
+<summary>$\color{#A754E0}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
+　　　<br>
+$${\color{#A754E0} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
+　　<br>
+$${\color{#A754E0} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
+    <br>
+$${\color{#A754E0} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
+　　<br>
+$${\color{#A754E0} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
+    <br>
+
+  </details>
+  </td>
+  </tr>
 $\color{A754E0}\normalsize{\texttt{I started to miss you...when you weren't around.}}$ 
       
 $\color{A754E0}\normalsize{\texttt{Reo..life was just a pain for me...and you gave me light.}}$
