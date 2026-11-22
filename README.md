@@ -2,7 +2,7 @@
 <div align="center">
  <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=000000&labelColor=A754E0">
  <p align ="center">
- ${{\color{#B10021} *}}$ 
+ ${{\color{#B10021}❆}}$ 
  ${{\color{#ffffff} 33   }}$
  ${{\color{#B10021} .☽༊˚ }}$
 $\color{ffffff}\normalsize{\texttt{ᴅᴀʏꜱ }}$
