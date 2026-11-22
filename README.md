@@ -22,7 +22,7 @@ $\color{ffffff}\normalsize{\texttt{ᴅᴀʏꜱ }}$
 
      
  <p float="center">
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20261025233549.png" width="1000" />  
+<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled454_20261122182117.png" width="1000" />  
      
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6399.png" />  
  <div align="center">
