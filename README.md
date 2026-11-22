@@ -18,8 +18,8 @@ $\color{ffffff}\normalsize{\texttt{ᴅᴀʏꜱ }}$
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
                           <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819083056.png" width="2000" />  
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=I+swear+on+my+life,+always+try)](https://git.io/typing-svg)
-     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=But+in+my+eyes,+I+can+fly.)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=B10021&width=750&lines=まるいケーキがあります〜して〜♪)](https://git.io/typing-svg)
+
      
  <p float="center">
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20261025233549.png" width="1000" />  
