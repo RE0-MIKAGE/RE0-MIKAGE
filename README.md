@@ -1,5 +1,6 @@
 
 <div align="center">
+    <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled456_20261122184834.png" />
  <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Candy+Canes&extraCount=9024&color=B10021&labelColor=ffffff"> <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Gingerbreads&extraCount=10000&color=ffffff&labelColor=B10021">
  <p align ="center">
  ${{\color{#B10021}❆}}$ 
@@ -21,7 +22,6 @@ $\color{ffffff}\normalsize{\texttt{ᴅᴀʏꜱ }}$
      [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=A754E0&width=750&lines=But+in+my+eyes,+I+can+fly.)](https://git.io/typing-svg)
      
  <p float="center">
-   <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6398.png" />
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled317_20261025233549.png" width="1000" />  
      
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_6399.png" />  
