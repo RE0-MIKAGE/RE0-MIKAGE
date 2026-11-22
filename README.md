@@ -1,6 +1,17 @@
 
 <div align="center">
- <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=000000&labelColor=A754E0">                                  
+ <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=000000&labelColor=A754E0">
+ <p align ="center">
+ ${{\color{#B10021} ૮꒰}}$ 
+   <a href="https://rentry.co/pixiliated">ʀᴇɴᴛʀʏ</a>
+ ${{\color{#B10021} .☽༊˚ }}$
+   <a href="https://fluxarataa.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a>
+ ${{\color{#B10021} .☽༊˚ }}$
+  <a href="https://sk8rslight.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
+  ${{\color{#B10021}꒱ა }}$ 
+</p>
+
+ 
 <div align="center">  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?
                           <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled342_20260819083056.png" width="2000" />  
