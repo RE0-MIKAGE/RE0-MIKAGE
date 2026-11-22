@@ -1,6 +1,6 @@
 
 <div align="center">
- <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Dreams&extraCount=9024&color=B10021&labelColor=ffffff"> <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Gifts&extraCount=9024&color=fffff&labelColor=B10021">
+ <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=ᴄᴀɴᴅʏ ᴄᴀɴᴇꜱ&extraCount=9024&color=B10021&labelColor=ffffff"> <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Gifts&extraCount=9024&color=ffffff&labelColor=B10021">
  <p align ="center">
  ${{\color{#B10021}❆}}$ 
  ${{\color{#ffffff} 33   }}$
