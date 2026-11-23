@@ -33,7 +33,7 @@ $\color{ffffff}\normalsize{\texttt{ᴅᴀʏꜱ }}$
    
 other than that u can willingly interact or be friends with me
 
-oh and iwvec reo doubles or people who sexualize/over-romanticize reo + ngro PLEASE im not gonna date you because you kin nagi and i kin reo OR say i need atleast a nagi in my life if i kin reo i hate that ts happened istg brah
+oh and iwvec reo doubles or people who sexualize/over-romanticize reo + ngro PLEASE im not gonna date you because you kin nagi and i kin reo OR say i need atleast a nagi in my life if i kin reo i hate that ts happened dont downgrade my goat brah
 
 　　<br>
   </details>
