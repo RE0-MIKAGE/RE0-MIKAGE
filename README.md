@@ -23,6 +23,21 @@ $\color{ffffff}\normalsize{\texttt{ᴅᴀʏꜱ }}$
      
  <p float="center">
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled454_20261122182117.png" width="1000" />  
- <div align="center">
+<p float="center">
+    <tr>
+<td>
+  <details>
+<summary>$\color{#B10021}{\textsf{BYIㅤㅤㅤㅤㅤ}}$</summary>
+　　　<br>
+   my only dni is the basic dni + ex friends im not in good terms with
+   
+other than that u can willingly interact or be friends with me
+
+oh and iwvec reo doubles or people who sexualize/over-romanticize reo + ngro PLEASE im not gonna date you because you kin nagi and i kin reo OR say i need atleast a nagi in my life if i kin reo i hate that ts happened istg brah
+
+　　<br>
+  </details>
+  </td>
+  </tr>
 
 
