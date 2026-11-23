@@ -39,5 +39,9 @@ oh and iwvec reo doubles or people who sexualize/over-romanticize reo + ngro PLE
   </details>
   </td>
   </tr>
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3162fbvqohxiqg4shs7uy3b5uvby&cover_image=true&theme=spotify-embed&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=e22400&bar_color_cover=false&mode=light">
+  </a>
+</p>
 
